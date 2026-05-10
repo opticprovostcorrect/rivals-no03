@@ -1,4 +1,4 @@
-
+Experience rivals like never before with instant Script for rivals, the #1 Script. Includes infinite resources and anti-ban for unbeatable
 
 
 
